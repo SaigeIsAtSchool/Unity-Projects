@@ -1,0 +1,1 @@
+Um dis gonna have random stuff in it if you want to download the project files you can just tldr they aren't gonna be good yet. I will make another repo for actual game projects that I'm making in class.
